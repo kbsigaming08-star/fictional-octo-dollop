@@ -1,4 +1,4 @@
-# Gauresh More
+# Gauresh More 🧿
 👋 Hi, I'm Gauresh More
 
 BCA Student | Cyber Security & Cloud Computing | Developer
